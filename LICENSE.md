@@ -1,4 +1,4 @@
-
+Get the ultimate Obsidian for macOS macro with rare Obsidian for macOS Macro | note encryption + auto-sync. Featuring note encryption and auto-sync, it's the best choice for macOS
 
 
 
